@@ -1,0 +1,1 @@
+first take coldWater in a glass then  remove lemonJuice from lemon into glass then pour salt and sugar in glass then remove the seeds of lemon in glass then filter the lemon juice in other glass then what !!your lemon  juice is Ready for drink !! 
